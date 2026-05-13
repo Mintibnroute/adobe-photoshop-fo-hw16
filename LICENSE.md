@@ -1,4 +1,4 @@
-# 
+# professional Panel for Adobe Photoshop for macOS - AI-assisted design and cloud sync offers the most advanced Adobe Photoshop for macOS panel, with AI-assisted design and cloud
 
 
 
